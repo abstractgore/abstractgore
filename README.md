@@ -2,8 +2,6 @@
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=&weight=100&size=10&duration=900&pause=900&color=FF4001AA&center=true&vCenter=true&width=250&separator=%3E&lines=c%2Bh+interact!+dni+%3D+%3C16%2B+;+very+shy%3Ew2i+or+check+tg+info+4+my+dm!+%3Ei+have+diamond+supp+sorry+if+im+ignoring+lolz%3EBTW+u+can+check+my+tgc+%5E_%5E" alt="Typing SVG" /></a>
    <p align="center">
    <a href="https://sleepstab7.straw.page" target="_blank">straw</a> . <a href="https://t.me/gorezinfo" target="_blank">tg info</a>
-   <p align="center">
-    <a href="https://gorez.atabook.org" target="_blank">ata</a>
     <p align="center">
    <img src="https://komarev.com/ghpvc/?username=abstractgore&label=LOLZ&color=ff4001&style=plastic" alt="Visitor Count" </p>
    <p align="center">
