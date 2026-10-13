@@ -2,7 +2,7 @@
    <p align="center">
    <a href="https://sleepstab7.straw.page" target="_blank">straw</a> . <a href="https://t.me/purescam7" target="_blank">tg info</a>
     <p align="center">
-   <img src="https://komarev.com/ghpvc/?username=abstractgore&label=YOU SEE ME RIIIIIGHT?&color=ff4001&style=plastic" alt="Visitor Count" </p>
+   <img src="https://komarev.com/ghpvc/?username=abstractgore&label=sea?&color=ff4001&style=plastic" alt="Visitor Count" </p>
    <p align="center">
 <img src="https://i.pinimg.com/736x/26/68/99/26689952891a77a98d77bb54a9bfe906.jpg" width="80" height="90"</p>
 <p align="center">
